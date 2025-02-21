@@ -13,4 +13,7 @@
 <meta name="description" content="Egemen Mustafa Şener'in tüm hayatı ve güncel serveti, en güncel haberler">
 
 
+Egemen mustafa şener telegram https://t.me/egemenmustafasener
+
+
 #Belarus #Minsk
