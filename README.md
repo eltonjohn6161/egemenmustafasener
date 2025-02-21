@@ -11,3 +11,6 @@
 🔥 **Mustafa Şener Nerede Yaşıyor?**, en güncel haberler
 
 <meta name="description" content="Egemen Mustafa Şener'in tüm hayatı ve güncel serveti, en güncel haberler">
+
+
+#Belarus #Minsk
